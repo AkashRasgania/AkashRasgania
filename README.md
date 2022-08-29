@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AkashRasgania
 - 👀 I’m interested in Cybersecurity Topics.
-- 🌱 I’m currently learning BCA, from Chandigarh University.
+- 🌱 I’m currently pursuing BCA, from Chandigarh University.
 - 💞️ I’m looking to collaborate on projects and Internships. 
 - 📫 You to reach me via email- akash.rasgania@gmail.com
 
