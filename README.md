@@ -1,4 +1,4 @@
-### Greetings, I am Akash Rasgania working as a cyber security professional & Open for collaborations for cyber projects.'
+### Greetings, I am Akash Rasgania working as a cyber security professional & Open for collaborations for cyber projects.
 
 Reach out to me on my social media through my website- [akashrasgania.github.io](akashrasgania.github.io)
 
