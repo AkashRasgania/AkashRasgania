@@ -1,7 +1,6 @@
-### Greetings, I am Akash Rasgania, pursuing Master's in Cyber Security From National Forensic Sciences University.
-**I am open for collaboration and internships.**
+### Greetings, I am Akash Rasgania, as cyber security professional & Open for collaborations for projects.'**
 
-📫 *You can reach me at my personal email- akash.rasgania@gmail.com*
+Reach out to me on my social media through my website- [akashrasgania.github.io](akashrasgania.github.io)
 
 <!---
 AkashRasgania/AkashRasgania is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
